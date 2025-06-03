@@ -5,3 +5,6 @@ Macarrones con chorizo y queso gratinado
 #(New↓!!)
 Rigatoni con salsa boloñesa
 
+Pappadelle al ragú
+Tagliatelle con setas, tomate seco y almendras
+Fideua con verduras
